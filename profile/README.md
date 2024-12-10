@@ -8,7 +8,7 @@
 Nama *Sadara Widya* mengandung pesan mendalam yang berasal dari bahasa Sanskerta:  
 
 1. **Sadara (सदर)**  
-   - *Makna*: Dengan hormat, penuh penghormatan, atau kehangatan.  
+   - *Makna*: Dengan hormat, rendah hati, penuh penghormatan, atau kehangatan.  
    - *Filosofi*: Menggambarkan kabinet yang mengedepankan sikap menghargai, keterbukaan, dan hubungan yang harmonis dalam setiap interaksi. Kabinet ini berkomitmen untuk bekerja dengan penuh penghormatan terhadap anggotanya dan masyarakat, menjunjung nilai-nilai kebersamaan untuk mencapai tujuan bersama.  
 
 2. **Widya (विद्या)**  
