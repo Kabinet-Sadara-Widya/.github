@@ -16,7 +16,7 @@ Nama *Sadara Widya* mengandung pesan mendalam yang berasal dari bahasa Sanskerta
    - *Filosofi*: Melambangkan semangat pencarian ilmu, pengembangan potensi, dan kebijaksanaan dalam pengambilan keputusan. Kabinet ini berfokus pada pencerahan intelektual dan spiritual dalam setiap langkahnya.  
 
 **Gabungan Filosofi**  
-Kabinet *Sadara Widya* adalah representasi harmoni antara penghormatan dan kehangatan (*Sadara*) dengan semangat ilmu pengetahuan dan kebijaksanaan (*Widya*). Nama ini mencerminkan sinergi nilai-nilai moral dan intelektual untuk menciptakan kepemimpinan yang berdampak positif dan berkesinambungan.  
+Kabinet *Sadara Widya* adalah representasi harmoni antara penghormatan dan kehangatan (*Sadara*) dengan semangat ilmu pengetahuan dan kebijaksanaan (*Widya*). Nama ini mencerminkan sinergi nilai-nilai moral dan intelektual untuk menciptakan dampak positif dan berkesinambungan.  
 
 ---
 
